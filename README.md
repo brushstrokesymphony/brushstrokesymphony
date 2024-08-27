@@ -1,4 +1,4 @@
-- I’m really interested in Problem Solving(please don't think me as a pig for Software companies to slotter. Problem solving is my passion)
+- I’m really interested in Problem Solving(_please don't think me as a pig for Software companies to slotter. Problem solving is my passion_)
 - I’m currently learning Algorithms and Data Structures
 - I’m looking to collaborate on AMYTHING!
 - How to reach me : [brushstrokesymphony.iitpkd@gmail.com](mailto:brushstrokesymphony.iitpkd@gmail.com?subject=Test)
